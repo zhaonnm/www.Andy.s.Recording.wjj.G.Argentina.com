@@ -1,0 +1,7 @@
+![王少嘉国旗](https://user-images.githubusercontent.com/121608707/210698598-286588a0-54cb-4627-9abc-866cb990176e.jpg)
+![滑雪图片](https://user-images.githubusercontent.com/121608707/210698612-a66dbd64-7662-4a87-85ed-b3b6e75db45a.png)
+![盛狮子](https://user-images.githubusercontent.com/121608707/210698623-6740f2cd-6d26-4923-af37-4799cd021d64.png)
+![盛狮子图片](https://user-images.githubusercontent.com/121608707/210698632-9ab475f5-ad3a-4d3c-8276-5da8b69b21b2.png)
+![WIN_20221217_14_21_05_Pro](https://user-images.githubusercontent.com/121608707/210698660-aa7cca66-f9c3-41ca-80c6-27edb42a25ee.jpg)
+![屏幕截图 2023-01-05 115739](https://user-images.githubusercontent.com/121608707/210698845-8d0d58e7-008d-468f-9d5b-496c459f9434.png)
+[圣诞快乐.pptx](https://github.com/zhaonnm/www.Andy.s.Recording.wjj.G.Argentina.com/files/10349186/default.pptx)
